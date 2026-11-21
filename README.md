@@ -1,1 +1,0 @@
-# FTF-LEGIT-V5-TESTE
